@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ConeyLem
+- 👀 I’m interested in reading manga and manhwa
+- 🌱 I’m currently learning on Scrimba
